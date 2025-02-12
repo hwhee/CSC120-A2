@@ -1,3 +1,5 @@
 Use this file to record your reflection on this assignment. 
 
 What worked, what didn't, what advice would you give someone taking this course in the future?
+
+This assignment was a bit difficult for me. I hope that this is mostly because it was the first assignment and I'm just getting a feel for what the class is, but I was definitely confused about what I was supposed to be doing. What worked was talking to friends who are taking the class and working together with them (THANK YOU TANISHA AND ETTA!). I'm not exactly sure what we missed on the snow day on Thursday, but I feel like it might have made some confusing things about this assignment more clear. Advice I have for people taking this course in the future is to utilize any and all resources at your disposal and talk to people in the class or who have already taken the class if you're looking for more help. And getting help is good!
